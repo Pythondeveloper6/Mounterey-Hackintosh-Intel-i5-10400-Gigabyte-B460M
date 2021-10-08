@@ -1,0 +1,1 @@
+# Mounterey-Hackintosh-Intel-i5-10400-Gigabyte-B460M
